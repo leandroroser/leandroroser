@@ -1,3 +1,3 @@
 ### Hi there 👋
 
-![logo](https://user-images.githubusercontent.com/10769732/179395682-8f197355-fb0d-407c-8877-588fd7365d23.png)
+![linux](https://user-images.githubusercontent.com/10769732/179396203-4c63ab06-ba81-42c8-bad0-7c471bd14b5f.jpg)
